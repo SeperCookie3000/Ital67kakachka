@@ -1,2 +1,8 @@
 # Ital67kakachka
-https://drive.google.com/drive/folders/1ZoMqrlYdPS8i69WLj5WBlFYgNg3XqSYq?usp=drive_link
+https://disk.yandex.ru/d/_7UfsMXyq3To8g
+
+https://disk.yandex.ru/d/UiLin9FR34aJWw
+
+https://disk.yandex.ru/d/pC0-eXkKbxhyTQ
+
+https://disk.yandex.ru/d/a4pvXB_yoJZkDw
